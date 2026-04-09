@@ -1,0 +1,1 @@
+[[resources]] created for the [[production]] of more resources

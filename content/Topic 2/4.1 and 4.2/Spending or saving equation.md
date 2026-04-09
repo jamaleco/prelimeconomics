@@ -1,0 +1,1 @@
+[[Disposable income]] (after [[taxation]]) = [[consumption expenditure]] + [[savings]] 

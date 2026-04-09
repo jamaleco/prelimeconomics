@@ -1,0 +1,1 @@
+An [[injection]]. Current spending for future benefits- [[capital goods]]

@@ -1,0 +1,1 @@
+Measure of [[economy]] development taking into account life expectancy at birth, educational attainment levels and material living standards.

@@ -1,0 +1,1 @@
+When [[leakage]]s and [[injection]]s are equal in a [[Circular flow of income]]. 

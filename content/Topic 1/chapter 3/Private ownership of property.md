@@ -1,0 +1,1 @@
+[[individuals]] have the right to own [[resources]] and use them to garner [[Income]] and get rich.

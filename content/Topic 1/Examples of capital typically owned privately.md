@@ -1,0 +1,1 @@
+Examples of [[capital]] include machinery, tools, factories and computers

@@ -1,0 +1,1 @@
+Amount of a [[product]] the consumer market is prepared to spend for 

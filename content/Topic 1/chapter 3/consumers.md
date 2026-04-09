@@ -1,0 +1,1 @@
+[[individuals]] or [[Business]]es purchaisng [[goods]] and [[services]]

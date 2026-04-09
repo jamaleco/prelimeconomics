@@ -1,0 +1,1 @@
+A [[goods]] present as an alternative to another

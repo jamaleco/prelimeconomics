@@ -1,0 +1,4 @@
+- [[natural resources]]-> [[Rent]]
+- [[Labour]]->[[wages]]
+- [[capital]]->[[Interest]]
+- [[Enterprise]]->[[profit]]

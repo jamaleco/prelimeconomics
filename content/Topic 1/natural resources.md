@@ -1,0 +1,1 @@
+all naturally occupying [[resources]] used in [[production]] processes

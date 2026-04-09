@@ -1,0 +1,3 @@
+- birth rate
+- death rate
+- immigration

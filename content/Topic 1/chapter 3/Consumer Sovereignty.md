@@ -1,0 +1,1 @@
+How [[consumers]] influence what is produced and [[production]] quantity through [[Market]] [[demand]]

@@ -1,0 +1,6 @@
+- school leaving age
+- retirement age
+- attitudes toward women in the workforce
+- childcare access
+- educational standards
+- quantity of on-the-job training

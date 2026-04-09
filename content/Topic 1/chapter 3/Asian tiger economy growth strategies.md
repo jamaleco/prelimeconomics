@@ -1,0 +1,1 @@
+[[Asian Tiger Economies]] grew through [[Exports]] markets and competitive [[Labour]] costs (low)

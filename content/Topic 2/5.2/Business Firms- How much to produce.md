@@ -1,0 +1,2 @@
+[[consumers]] [[demand]] vs [[capital]] required to achieve this and [[production]] without incurring an [[Opportunity Cost]]- excess [[product]] without [[demand]] will be an inappropriate usage of [[capital]] for example
+- difficult to anticipate with no [[consumers]] data ie with a new [[product]]

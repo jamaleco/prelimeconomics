@@ -1,0 +1,1 @@
+A [[Market]] for [[the four factors of production in an economy]] 

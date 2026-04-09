@@ -1,0 +1,1 @@
+All income generated from the use of [[natural resources]] in [[production]]

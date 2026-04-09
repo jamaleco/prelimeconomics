@@ -1,0 +1,30 @@
+- middle sized [[economy]] with small population
+- Australia is different compared to the rest of Asia due to foreign investment- achieving industrialisation Pre-1945
+- slow growth comparatively to Asia has been present however its faster than most other economies that are as advanced. Due to this it has been relatively stable 
+- Although not shown, in 2008ish Europe and North America fell greatly. Australia was able to still grow due to the value of China and India on Australia's economy
+- Australia has the second highest GDP per capita of Asian nations second only to Singapore- a arbitrary measure of standard of living 
+- Australia relies very heavily on Australia- annual two way trade= over 200 Billion USD
+- some argue that this may be bad for Australian growth, being so dependant on China.
+- Australia scores extremely highly on the HDI behind only Norway and Switzerland
+- Highish unemployment rates compared to other Asian countries
+![[Screenshot 2026-03-09 at 12.01.36 pm.png]]
+- declining unemployment rate is still present
+- Aus employment patterns are similar to other advanced economies- many working in careers like construction and manufacturing with less in agriculture
+- similar to japan^
+- Australia has a poor history of preserving biodiversity- 50 species extensions in Australia- A third globally
+- good use of water resources
+- clear environment compared to many asian countries however still relatively poor for an industrialised country
+- High Global emissions rank
+- Australia has always been more similar to capitalist nations ([[Market economies]])
+- aligned with these nations during cold war (japan, Korea)
+- lots of privatisation and deregulation has occurred in Australia as of late- less government interference 
+- Australia is ranked fifth most free economy while North Korea is the lowest of asian nations
+- Government expenditure was 37% in Aus in 2018 which is above average for most of asia but similar for other advanced economies
+- Low smoking rate of 17% compared to other asian nations (Indonesia at 70%!)
+- universal education (primary and secondary)
+- 1/3 attend private education
+- most universities are public but costs are paid through HECS (payment after employment is found)
+- Above average education spending compared to Asia
+- greater social welfare than other asian nations- very extensive comparatively
+- Much higher (4.2%) % of gdp than Indonesia (0.8%) on pensions while less than japan (9.4!)
+- 

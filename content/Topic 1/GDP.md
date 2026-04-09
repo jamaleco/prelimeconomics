@@ -1,0 +1,1 @@
+Gross Domestic Product- total income of a society gained through [[production]]

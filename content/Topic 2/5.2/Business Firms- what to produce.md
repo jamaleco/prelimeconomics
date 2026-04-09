@@ -1,0 +1,4 @@
+- likely to be successful in an [[industry]] they are familiar with, have good connections, know how [[production]] works etc
+- [[industry]]s with strong [[demand]] or poorly run or undervalued [[Market]]s thus with low [[Competition]]. Alternatively targeting regions without a business etc
+- [[niche market]] 
+- [[capital]] required to start the [[firm]]

@@ -1,0 +1,1 @@
+A network of [[individuals]] or [[Business]] (buyers and seller) seeking to exchange a [[product]] for [[Money]] (price)

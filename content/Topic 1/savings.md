@@ -1,0 +1,1 @@
+A type of [[leakage]] where money is taken aside and withdrawn from [[Circular flow of income]]

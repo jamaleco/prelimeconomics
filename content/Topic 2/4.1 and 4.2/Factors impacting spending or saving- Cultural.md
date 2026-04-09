@@ -1,0 +1,1 @@
+East Asian [[economy]] tend to save more, older tends to save more

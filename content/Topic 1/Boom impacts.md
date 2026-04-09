@@ -1,0 +1,1 @@
+Greater [[production]]. greater [[Labour]]- less [[Unemployment]], more income, more consumers, better infrastructure- higher quality of life

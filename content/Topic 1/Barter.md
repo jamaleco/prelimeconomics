@@ -1,0 +1,1 @@
+The non [[Money]] exchange of [[goods]] and [[services]] 

@@ -1,0 +1,1 @@
+shorthand for all types of [[natural resources]]

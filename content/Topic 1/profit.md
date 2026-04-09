@@ -1,0 +1,1 @@
+Income left over after all expenses are paid for + a "[[services]] tax" for running an [[Enterprise]] and risking failure

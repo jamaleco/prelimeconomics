@@ -1,0 +1,1 @@
+Interest is the surcharge of using someone else's money, typically provided by banks. A return is given to owners of [[capital]]

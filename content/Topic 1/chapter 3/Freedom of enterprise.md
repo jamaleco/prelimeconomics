@@ -1,0 +1,1 @@
+[[individuals]] right to personal [[Enterprise]] choice

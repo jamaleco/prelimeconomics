@@ -1,0 +1,1 @@
+[[Market]]s providing a [[goods]] or [[services]] to a small yet [[demand]]ing [[consumers]] base
