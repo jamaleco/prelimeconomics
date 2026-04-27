@@ -1,5 +1,5 @@
 - level  of [[Income]]
-- price of [[goods]] ([[needs]] are exempt)
+- [[price]] of [[goods]] ([[needs]] are exempt)
 - consumer tastes
-- [[marketting]]
-- Price of [[substitute]] and influence of [[complementary goods]] 
+- [[marketing]]
+- [[price]] of [[substitute]] and influence of [[complementary goods]] 

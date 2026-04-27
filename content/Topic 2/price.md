@@ -1,0 +1,1 @@
+the amount of [[Money]] or [[resources]] required for something, typically a [[goods]] or [[services]]

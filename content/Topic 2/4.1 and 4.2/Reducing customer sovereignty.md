@@ -1,5 +1,5 @@
 Reducing [[Consumer Sovereignty]]
-- manipulative [[marketting]]
+- manipulative [[marketing]]
 - Misleading conduct
 - Decreasing [[supply]]- limited edition
 - [[Anti- competitive behaviour]] 

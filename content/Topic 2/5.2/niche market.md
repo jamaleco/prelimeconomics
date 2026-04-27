@@ -1,1 +1,1 @@
-[[Market]]s providing a [[goods]] or [[services]] to a small yet [[demand]]ing [[consumers]] base
+[[Topic 1/chapter 3/Market]]s providing a [[goods]] or [[services]] to a small yet [[demand]]ing [[consumers]] base

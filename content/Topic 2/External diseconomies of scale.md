@@ -1,0 +1,1 @@
+Factors negatively influencing [[Economies of scale]] through external means; when a [[firm]]'s [[Average cost per unit]] is increased through factors out of the firms control

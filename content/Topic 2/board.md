@@ -1,0 +1,1 @@
+(In relation to [[firm]]s) board of elected/appointed individuals who oversee, set future plans, manage [[Company directors]] like CEOs- typically legally accountable for the company 

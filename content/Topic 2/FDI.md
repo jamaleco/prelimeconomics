@@ -1,0 +1,1 @@
+Foreign direct [[Investment]]- 10% of voting power (typically major [[shareholder]]) as an international

@@ -1,7 +1,7 @@
 Example of [[Price Mechanism]] and [[Factor Market]]
 - Uniquely sunny weather
 - sunglass [[demand]] goes up
-- price goes up (limited [[supply]])
+- [[price]] goes up (limited [[supply]])
 - more [[money]] for a [[product]] makes [[Business]]es produce more
 and vice versa
 - More sunglasses= more plastic, metal and skill labour

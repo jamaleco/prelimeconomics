@@ -1,1 +1,1 @@
-How [[consumers]] influence what is produced and [[production]] quantity through [[Market]] [[demand]]
+How [[consumers]] influence what is produced and [[production]] quantity through [[Topic 1/chapter 3/Market]] [[demand]]

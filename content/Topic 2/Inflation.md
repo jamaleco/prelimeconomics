@@ -1,0 +1,1 @@
+increase in general cost for [[goods]] and [[services]] over a period of time
