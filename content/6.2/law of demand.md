@@ -1,0 +1,1 @@
+present in the [[Demand schedule]], stating that [[demand]] of a [[good]] drops as [[price]] increases and vice versa. Some exceptions include high priced luxury items that serve as a status symbol as prices increase

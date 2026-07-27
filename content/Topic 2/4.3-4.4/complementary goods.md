@@ -1,1 +1,1 @@
-[[Goods]] bought in conjunction with others
+[[good]] bought in conjunction with others

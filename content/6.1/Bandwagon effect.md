@@ -1,0 +1,1 @@
+Occurs when [[demand]] for a [[good]] increases because everyone else has one

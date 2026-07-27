@@ -1,1 +1,1 @@
-[[supply]] [[demand]] interactions resulting in the market [[price]] of [[goods]] and [[services]] and quantity produced
+[[supply]] [[demand]] interactions resulting in the market [[price]] of [[good]] and [[services]] and quantity produced

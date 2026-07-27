@@ -1,6 +1,6 @@
 [[Unemployment]]  doesn't impact the [[Production Possibility Frontier]] since the frontier represent the maximal possible output with the resources available. However, it impacts the position of the [[economy]] in regards to the frontier.
 ![[Screenshot 2026-01-10 at 11.14.24 am.png]]
-^ an in-optimal means of production- [[goods]] and [[services]] production is not maximised
+^ an in-optimal means of production- [[good]] and [[services]] production is not maximised
 
 START
 Basic

@@ -1,1 +1,1 @@
-total amount of [[goods]] or [[services]] that an industry is capable of producing
+total amount of [[good]] or [[services]] that an industry is capable of producing

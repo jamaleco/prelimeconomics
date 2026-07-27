@@ -1,0 +1,1 @@
+consuming a [[good]] or [[services]]

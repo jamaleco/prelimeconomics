@@ -4,6 +4,6 @@
 START
 Basic
 Capital vs consumer goods ![[Screenshot 2026-01-11 at 11.28.54 am.png]]
-Back: an activity that provides either [[goods]] or [[services]] with the typical goal of creating a profit
+Back: an activity that provides either [[good]] or [[services]] with the typical goal of creating a profit
 <!--ID: 1768215983338-->
 END

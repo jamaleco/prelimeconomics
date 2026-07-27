@@ -1,0 +1,1 @@
+A financial unit representing a fraction of ownership of a [[firm]]

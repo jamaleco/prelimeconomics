@@ -1,0 +1,1 @@
+exchange of [[good]] and [[services]] for [[Money]] 

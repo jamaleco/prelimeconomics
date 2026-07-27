@@ -1,0 +1,1 @@
+[[demand]] is higher because few people own it- limited edition sports cars

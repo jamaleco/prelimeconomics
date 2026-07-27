@@ -1,1 +1,1 @@
-through combining [[resources]] for [[goods]] or [[services]]. Impacted by the efficiency of [[the four factors of production in an economy]] in relation to each other. Goal is to choose the most efficient combination
+through combining [[resources]] for [[good]] or [[services]]. Impacted by the efficiency of [[the four factors of production in an economy]] in relation to each other. Goal is to choose the most efficient combination

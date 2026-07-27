@@ -1,1 +1,1 @@
-[[individuals]] or [[Business]]es purchaisng [[goods]] and [[services]]
+[[individuals]] or [[Business]]es purchaisng [[good]] and [[services]]- those who [[consumption]]

@@ -1,7 +1,7 @@
 one of [[The key economic issues]]
 - limited [[resources]] make it impossible to answer all [[Individual wants]] and [[Collective wants]]
 - Therefore, it must decide which will be satisfied first and which won't be satisfied
-- Thus it must decide what [[goods]] and [[services]] will be produced
+- Thus it must decide what [[good]] and [[services]] will be produced
 
 START
 Basic

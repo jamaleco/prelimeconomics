@@ -1,1 +1,1 @@
-[[goods]] and [[services]] produced nationally and sold internationally. Viewed as a [[leakage]]
+[[good]] and [[services]] produced nationally and sold internationally. Viewed as a [[leakage]]

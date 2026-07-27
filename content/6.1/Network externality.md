@@ -1,0 +1,1 @@
+influenced by who bought a [[good]] or how many people

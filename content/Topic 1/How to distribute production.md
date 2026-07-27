@@ -1,4 +1,4 @@
-An [[economy]] must choose the distribution among the population. In a contemporary setting, an individuals share of a total [[production]] is based on their level of income. Higher income = more [[goods]] and [[services]] since [[individuals]] can afford it. They must decide to have either a more equitable distribution or inequitable. This is difficult because equity and efficiency often conflict. 
+An [[economy]] must choose the distribution among the population. In a contemporary setting, an individuals share of a total [[production]] is based on their level of income. Higher income = more [[good]] and [[services]] since [[individuals]] can afford it. They must decide to have either a more equitable distribution or inequitable. This is difficult because equity and efficiency often conflict. 
 
 START
 Basic

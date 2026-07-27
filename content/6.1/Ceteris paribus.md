@@ -1,0 +1,1 @@
+An [[economy]]c assumption used to isolate the relationship between two economic variables. For example, a [[Production Possibility Frontier]] with only two variables applies ceteris paribus working with the assumption that if x increases then y decreases and so forth

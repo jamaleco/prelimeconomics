@@ -1,5 +1,5 @@
 - Limited [[resources]] must be allocated efficiently to maximally satisfy [[wants]]
-- an [[economy]] must make decisions of how much of each [[goods]] or [[services]] will be produced
+- an [[economy]] must make decisions of how much of each [[good]] or [[services]] will be produced
 - if an excess is produced, [[resources]] will be wasted and if too little is produced, the [[wants]] of others will be left unsatisfied
 
 START

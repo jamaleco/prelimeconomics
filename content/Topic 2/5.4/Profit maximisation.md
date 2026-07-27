@@ -1,0 +1,1 @@
+maximising [[profit]] through using the lowest costing combination of [[the four factors of production in an economy]] and charging the highest [[price]] [[consumers]] will buy for. Main priority of [[shareholder]]s

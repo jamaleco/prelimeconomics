@@ -1,0 +1,1 @@
+An owner of a [[share]] of a [[firm]], often chosen by the firms central owners/[[entrepreneur]]s.  Often wish to create short term returns on their [[Investment]]

@@ -1,1 +1,1 @@
-organising the other 3 of [[the four factors of production in an economy]] for the purpose of producing [[goods]] and [[services]]
+organising the other 3 of [[the four factors of production in an economy]] for the purpose of producing [[good]] and [[services]]

@@ -1,1 +1,1 @@
-human effort used to produce [[goods]] and [[services]]. 
+human effort used to produce [[good]] and [[services]]. 

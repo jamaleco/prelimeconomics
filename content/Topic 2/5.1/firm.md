@@ -1,1 +1,1 @@
-an [[entrepreneur]]ial  [[Business]] that combines [[Factors of Production]] to produce a [[goods]] or [[services]] for [[profit]].  THE major [[production]] unit in australian [[economy]]
+an [[entrepreneur]]ial  [[Business]] that combines [[Factors of Production]] to produce a [[good]] or [[services]] for [[profit]].  THE major [[production]] unit in australian [[economy]]

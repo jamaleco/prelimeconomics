@@ -1,4 +1,4 @@
-essential [[goods]] and [[services]] for survival 
+essential [[good]] and [[services]] for survival 
 
 START
 Basic

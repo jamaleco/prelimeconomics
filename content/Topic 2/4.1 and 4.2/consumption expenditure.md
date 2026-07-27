@@ -1,1 +1,1 @@
-spending on [[goods]] and [[services]] to DIRECTLY/immediately satisfy [[needs]]/[[wants]]
+spending on [[good]] and [[services]] to DIRECTLY/immediately satisfy [[needs]]/[[wants]]

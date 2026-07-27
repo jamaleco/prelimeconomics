@@ -1,0 +1,1 @@
+[[resources]] used to produce [[good]] and [[services]]

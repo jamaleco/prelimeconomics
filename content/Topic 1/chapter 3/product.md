@@ -1,1 +1,1 @@
-[[goods]] and [[services]]
+[[good]] and [[services]]
