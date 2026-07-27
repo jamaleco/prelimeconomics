@@ -1,0 +1,1 @@
+Small [[economy]]s undergoing mass develop to to catch up to high nations development

@@ -1,0 +1,1 @@
+[[economy]]c sectors concerning an individual

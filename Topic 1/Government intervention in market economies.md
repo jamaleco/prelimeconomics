@@ -1,0 +1,1 @@
+[[Governments]] intervene in [[Market economies]] to aid those unable to contribute due to illness, age or disability paid through taxation

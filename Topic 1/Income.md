@@ -1,0 +1,1 @@
+[[Money]], or other benefits measured in relation, received in exchange for their role in [[the four factors of production in an economy]]

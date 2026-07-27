@@ -1,0 +1,1 @@
+the return to the owners of [[Labour]] in the form of income

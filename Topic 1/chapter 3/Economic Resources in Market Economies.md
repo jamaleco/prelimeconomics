@@ -1,0 +1,1 @@
+Economic Resources in [[Market Economies]] are owned by [[private sectors]]

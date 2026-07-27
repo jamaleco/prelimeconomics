@@ -1,0 +1,1 @@
+Change in [[Income]] results in change in [[consumers]] [[demand]]. higher income= more spending money. growing income increases [[demand]] on [[wants]]- [[needs]] are not particularly susceptible to changes in [[income]]. In a [[Recession]] or a period where people have lower expectations of future income, they are less likely to spend.

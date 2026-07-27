@@ -1,0 +1,1 @@
+if the [[price]] of a [[good]] is expected to increase soon, greater immediate [[demand]] and [[consumption]] will occur. For example, demand for toilet paper in 2020 went up because people believe that it would become extremely expensive and scarce during lockdowns

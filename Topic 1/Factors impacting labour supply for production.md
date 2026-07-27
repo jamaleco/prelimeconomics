@@ -1,0 +1,2 @@
+- [[Factors impacting country population]] 
+- [[Factors influencing supply and quantity of labour resources]] 

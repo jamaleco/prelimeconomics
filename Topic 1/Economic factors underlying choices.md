@@ -1,0 +1,3 @@
+- [[Factors influencing economic choices of individuals]]
+- [[Factors influencing economic choices of businesses]]
+- [[Factors influencing economics choices of government]]

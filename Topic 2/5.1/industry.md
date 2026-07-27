@@ -1,0 +1,1 @@
+involves [[firm]]s that create similar [[product]]s and [[services]] that compete against each other.

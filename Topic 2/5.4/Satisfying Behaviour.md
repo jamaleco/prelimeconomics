@@ -1,0 +1,1 @@
+Achieving all of the [[Goals of a firm]] rather than just one like [[Profit maximisation]] (although profit maximisation is usually the priority)

@@ -1,0 +1,1 @@
+paid by [[taxation]], a form of retribution to those who do not own [[the four factors of production in an economy]] and are thus neglected in [[Market economies]]

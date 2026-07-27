@@ -1,0 +1,1 @@
+A medium exchanged [[good]] and [[services]]

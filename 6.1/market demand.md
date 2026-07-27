@@ -1,0 +1,1 @@
+the [[demand]] by all [[consumers]] for a particular [[good]] or [[services]], obtained by summing total quantity demanded by individual consumers at various [[price]] levels

@@ -1,0 +1,1 @@
+Allows the [[Price Mechanism]] to work, ensuring theres a large amount of [[consumers]] and [[sellers]] so that a single entity choices cannot influence [[Topic 1/chapter 3/Market]] [[price]] and screw over consumers.

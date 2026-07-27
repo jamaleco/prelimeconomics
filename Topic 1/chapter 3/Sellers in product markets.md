@@ -1,0 +1,1 @@
+Sellers in [[Product market]] are [[Business]]

@@ -1,0 +1,1 @@
+as we assume [[Ceteris paribus]], any change in [[price]] of a [[good]] will result in a change in [[demand]], resulting in movements along the [[Demand Curve]]. 

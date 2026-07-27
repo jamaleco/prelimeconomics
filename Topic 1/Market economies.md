@@ -1,0 +1,1 @@
+Provide people with income as a reward for their contribution to the [[production]] process based on scarcity or demand of their contribution in [[the four factors of production in an economy]]

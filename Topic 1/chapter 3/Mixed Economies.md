@@ -1,0 +1,1 @@
+Mixed [[economy]] are a combination of [[Market economies]] and [[Centrally Planned Economy]] using [[Topic 1/chapter 3/Market]] forces and [[Governments]] decisions, typically focusing on market forces![[Screenshot 2026-03-09 at 10.01.15 am.png]]

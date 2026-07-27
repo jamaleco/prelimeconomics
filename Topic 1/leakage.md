@@ -1,0 +1,1 @@
+Items that remove [[Money]] from the [[Circular flow of income]], decreasing economic activity and aggregate [[Income]]

@@ -1,0 +1,1 @@
+[[entrepreneur]]s who lead a business [[firm]], chosen to [[shareholder]] interests on a [[board]]. Hope for long term [[firm]] and financial growth rather than immediate

@@ -1,0 +1,1 @@
+human effort used to produce [[good]] and [[services]]. 

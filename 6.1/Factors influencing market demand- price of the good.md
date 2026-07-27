@@ -1,0 +1,1 @@
+[[needs]] do not particularly operate in regards to the [[Price Mechanism]] as [[demand]] will stay constant even if the price for them changes. However, spending on [[wants]] drop and [[demand]] for other unnecessary [[good]] may drop

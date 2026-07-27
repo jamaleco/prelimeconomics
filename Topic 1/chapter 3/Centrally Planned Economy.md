@@ -1,0 +1,1 @@
+[[Governments]] planners control [[economy]]c decisions; [[individuals]] dont influence [[economy]] greatly

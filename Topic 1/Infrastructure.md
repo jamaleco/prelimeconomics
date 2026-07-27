@@ -1,0 +1,1 @@
+a form of [[capital]] owned by the community 

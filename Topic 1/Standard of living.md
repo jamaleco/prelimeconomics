@@ -1,0 +1,1 @@
+Derived from the quantity and quality of a nation's [[Factors of Production]] as this influences the degree they can satiate their [[wants]], describes capacity to satisfy the [[wants]] of an [[economy]]

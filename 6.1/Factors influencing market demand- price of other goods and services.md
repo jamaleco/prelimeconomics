@@ -1,0 +1,2 @@
+- [[price]] of [[substitute]]s ie higher netflix [[cost]] higher [[demand]] for Foxtel Now
+- increase in a good's [[complementary goods]] price may result in less [[demand]] for the other- increase in laptop cost, decrease in [[demand]] for laptop chargers

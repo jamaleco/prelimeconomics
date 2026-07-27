@@ -1,0 +1,1 @@
+Decisions in PURE [[Market economies]] are made by [[individuals]] and [[Business]]es primarily for self gain

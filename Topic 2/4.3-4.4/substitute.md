@@ -1,0 +1,1 @@
+A [[good]] present as an alternative to another

@@ -1,0 +1,1 @@
+a [[leakage]] from the [[Circular flow of income]] provided to the governments for the production of collective wants

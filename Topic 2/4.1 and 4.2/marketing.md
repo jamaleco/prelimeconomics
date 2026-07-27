@@ -1,0 +1,1 @@
+Marketers research [[wants]], fears, interests of [[consumers]] and manipulate the consumer to bias their product

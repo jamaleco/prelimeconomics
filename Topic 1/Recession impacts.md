@@ -1,0 +1,1 @@
+[[Recession]]s result in decreased [[production]], [[Labour]] and future plans. often results in mass [[Unemployment]] resulting in less spending money in the economy, causing more employment  resulting in larger infrastructural issues.

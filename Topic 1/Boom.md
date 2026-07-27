@@ -1,0 +1,1 @@
+Period of  [[The business cycle]] defined by 6 months of great [[economy]] growth; major improvement in [[GDP]]. 

@@ -1,0 +1,1 @@
+consumer preferences, impacted by technological progress, innovation and trends  influence [[demand]]. For example, due to mobile phones, landlines are obsolete 

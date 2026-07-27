@@ -1,0 +1,1 @@
+Any [[resources]] used in the creation of [[good]] and [[services]]
